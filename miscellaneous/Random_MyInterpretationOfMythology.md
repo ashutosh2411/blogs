@@ -1,0 +1,21 @@
+# An Alternative Interpretation of Mythology
+## Ashutosh Upadhye
+
+### Preface
+It is really hard to come up with an original idea. It is even harder to write an article on the same. You cannot find opinions of people about the same anywhere! The whole process becomes intriguing. What the idea is? Well here you go: "What we call as the _'Mythology'_, is actually the _'History'_". Now, this is not the first time you're hearing a self-proclaimed _'historian'_ say that, are you? But as you go on reading, you'll be convinced and agreeing, _"This seems logical.", "This could have happened.", "Yeah this argument definitely has got some weight."_
+
+I am not asking you to buy my views. I just want you to read, without prejudice. Hope you like it. 
+
+### The Idea
+Do you think Lord Rama was an actual person who actually walked on _the Indian soil_? Would you believe if I told you that Ravana was an actual person? _'How could a person posses TEN heads?'_ that would be your first thought, _right?_ Now, no matter what theories you consider, a person with TEN heads seems a little too much, _right?_ Nobody would buy that, would they? 
+
+Now before addressing those questions, let's consider something known as _"The Figurative Language"_. What is a Figure of Speech? Something that enriches the language. It enhances the beauty of the language. They are correctly called _'Alankaar'_ in Hindi, which literally translates to _'Ornaments'_. Figures of speech are the ornamental structures of the language. Now how could this have to do anything with Mythology, or _'history as you say it'_? It does, it very much does. 
+
+Facts, _as is a common protocol now_, are expected not to be exaggerated in anyway, especially if they're going to dictate history in future. How hard and fast is that rule? When do you think the official documentation of _events_ started? Long back; 3500 BC to be exact. Now people, or rather _the authors_, back then didn't think of this basic thing, that people might _actually believe_ whatever is inscribed here, they might think that if something that this inscription depicts, actually happened, it has to be literally the same as what is stated. They didn't realize that stating something like _'X had TEN heads'_ might be taken literally, despite have no intention to convey that. The damage had been done!
+
+There is no questioning the literary supremacy of the authors of the great Epics. They were indeed creative, and to a very large extent, realistic. There is no way they would have known what the Google Map says about reaching Ayodhya from SriLanka, yes if you've selected the walking mode, it tells you 20 days, the exact number of days taken by Rama to reach Ayodhya after Killing Ravana. There has to be some honest observations which the authors might have made, and not everything is made up. In fact, as many of you would have realized, everything was indeed the truth, a truth exaggerated to the extent that its reliability is now being questioned. 
+
+- Ravana had 10 heads. Well, maybe he was as smart as 10 people combined. The multiple head thing is just a metaphor. He was as good as 10 scholars combined. Maybe he had expertise in 10 subjects. 
+- Sita emerged from the Earth. Birth here is a metaphor. Maybe she was an orphan left in a field by her parents, and maybe buried under the soil. She was fortunate enough to be found by her foster father. 
+- Lanka the city of Gold. Well, the gold here is again a metaphor. Here, the gold refers to the _Apta tree_, the tree brought by Rama to India from Lanka. Now addressing _Apta_ as gold, might seem like exaggerating the exaggeration, but considering the medicinal and agricultural benefits of the same, gold seems a fair choice of metaphor. 
+- What about the _Agnee Pariksha_ and the army of monkeys? How would you explain _vultures_ fighting for the dignity of a woman? How about many other questionable assertions made by the author? Well, I am sure I have pointed the direction, go explore the new dimension yourself. 

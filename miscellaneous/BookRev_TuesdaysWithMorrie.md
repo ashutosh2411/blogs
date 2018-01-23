@@ -1,5 +1,5 @@
-# Tuesdays with Morrie: a review
-
+# Tuesdays with Morrie
+## Mitch Albom
 ![Alt text](../images/twm.jpg)
 
 You hardly come across a book which is simple yet compelling, a quick-read yet thought-provoking, saddening yet heartening, short yet long lasting. Tuesdays with Morrie by Mitch Albom is one such masterpiece. More than just a memoir of last words of a dying man, it's an inspirational account of a man's life - a man whose passion for the human spirit has continued to live long after his last breath.
